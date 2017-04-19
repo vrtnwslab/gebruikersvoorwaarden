@@ -1,6 +1,6 @@
 # Gebruiksvoorwaarden
 
-Meld Nieuws is onderhevig aan de algemene gebruiksvoorwaarden van de VRT, in het bijzonder paragraaf 5. Gebruikers melden klein en groot nieuws door het maken van foto- en videomateriaal en dit te versturen naar de VRT NWS redactie. Dit audiovisueel materiaal kan op al onze platformen gebruikt worden. Ter aanvulling van de algemene gebruiksvoorwaarden staan hieronder specifieke richtlijnen met betrekking tot het maken en versturen van audiovisueel materiaal naar VRT Nieuwsdienst.
+Meld Nieuws is onderhevig aan [de algemene gebruiksvoorwaarden van de VRT](https://www.vrt.be/nl/info/gebruiksvoorwaarden), in het bijzonder paragraaf 5. Gebruikers melden klein en groot nieuws door het maken van foto- en videomateriaal en dit te versturen naar de VRT NWS redactie. Dit audiovisueel materiaal kan op al onze platformen gebruikt worden. Ter aanvulling van de algemene gebruiksvoorwaarden staan hieronder specifieke richtlijnen met betrekking tot het maken en versturen van audiovisueel materiaal naar VRT Nieuwsdienst.
 
 * Breng jezelf of anderen niet in gevaar terwijl je filmt of foto’s maakt.
 * Filmen en foto’s maken zonder toestemming is enkel toegestaan als mensen niet herkenbaar zijn, bijvoorbeeld een overzichtsbeeld van een drukke winkelstraat.
