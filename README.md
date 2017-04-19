@@ -1,1 +1,1 @@
-# gebruikersvoorwaarden
+# gebruiksvoorwaarden
