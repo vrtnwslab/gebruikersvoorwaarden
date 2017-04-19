@@ -1,4 +1,4 @@
-# Gebruikersvoorwaarden
+# Gebruiksvoorwaarden
 
 Meld Nieuws is onderhevig aan de algemene gebruiksvoorwaarden van de VRT, in het bijzonder paragraaf 5. Gebruikers melden klein en groot nieuws door het maken van foto- en videomateriaal en dit te versturen naar de VRT NWS redactie. Dit audiovisueel materiaal kan op al onze platformen gebruikt worden. Ter aanvulling van de algemene gebruiksvoorwaarden staan hieronder specifieke richtlijnen met betrekking tot het maken en versturen van audiovisueel materiaal naar VRT Nieuwsdienst.
 
